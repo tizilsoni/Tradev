@@ -1,2 +1,3 @@
-# website
-You can copy anything you like..(^-^)
+# My Personal Potfolio
+
+Still Under Construction If things Seem Choppy.
